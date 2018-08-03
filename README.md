@@ -1,4 +1,4 @@
-Role of GIF In Garnering More Social Networking Traffic
+<h1>Role of GIF In Garnering More Social Networking Traffic</h1>
 
 
 The existence of animated GIFs has elevated rhetorically in the last couple of years that's offering websites getting a totally new and efficient method of attracting more users. These fun and moving images will have a big role to determine in working the fate in the social networking campaign ad by reaching your audience better. Let's observe:
